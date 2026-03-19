@@ -152,3 +152,6 @@ Machine Learning Enthusiast 🚀
 ## ⭐ If you like this project
 
 Give it a ⭐ on GitHub!
+<img width="1920" height="1080" alt="Screenshot 2026-03-19 211258" src="https://github.com/user-attachments/assets/a3f910cd-6176-46d2-bcd4-450df5cbee1c" />
+<img width="1920" height="1080" alt="Screenshot 2026-03-19 211318" src="https://github.com/user-attachments/assets/6b19867c-<img width="1920" height="1080" alt="Screenshot 2026-03-19 211345" src="https://github.com/user-attachments/assets/b9b12c8c-bd11-4a83-83cf-21d3650f6f30" />
+7c94-4997-b000-e29d8507c6e1" />
